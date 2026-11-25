@@ -1,4 +1,4 @@
-# 👋 Hi, I'm G Jaman Dora
+# 👋 Hi, I'm GADDANGI JAMAN DORA
 
 <div align="center">
 
